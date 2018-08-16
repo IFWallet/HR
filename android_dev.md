@@ -25,4 +25,4 @@ IFWallet成立于2018年6月，是一家新兴的专注于区块链应用的互�
 五险一金
 福利优厚
 
-简历请投递至：bibodeng@gmail.com
+简历请投递至：hr@ifwallet.com
